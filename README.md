@@ -1,4 +1,4 @@
-**Bem-Vindo ao meu perfil**
+**Bem-Vindo ao meu perfil** 🦋
 
 My name is Lauany
 
@@ -10,7 +10,7 @@ Utilizo esse espaço para minha organização e compartilhamento dos meus projet
 
 ![](https://media.tenor.com/2H8QP9NJg5YAAAAi/butterfly-insect.gif)
 
-![](https://media.tenor.com/eRGU5l2v-_wAAAAi/cat-meme.gif)
+![](https://media1.tenor.com/m/J9mOaXMbKygAAAAC/mochi-pet.gif)
 
 
 
